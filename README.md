@@ -1,9 +1,7 @@
-👋 Hi, I’m @dohitpandey
+👋 Hi, I’m **Dohit Pandey**
 
-I’m interested in web development
+⚡ I love Maths,Programming and Reading,
 
-I’m currently learning Azure
+🌱 I am addicted to learning and growing everyday,
 
-I’m looking to collaborate on web application projects.
-
-You can reach me via linkedin https://www.linkedin.com/in/dohit-pandey-078a39203/
+📮 You can reach me via linkedin https://www.linkedin.com/in/dohit-pandey-078a39203/
