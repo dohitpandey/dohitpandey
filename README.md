@@ -4,4 +4,4 @@
 
 🌱 I am addicted to learning and growing everyday,
 
-📮 You can reach me via linkedin https://www.linkedin.com/in/dohit-pandey-078a39203/
+📮 You can reach me via linkedin https://www.linkedin.com/in/dohit-pandey
